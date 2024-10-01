@@ -13,7 +13,7 @@ I am Currently enrolled as an Interactive Design Student at  [SAIT](https://www.
 ## Interests:
 -  Digital Arts
 - Different forms of Design (Graphic, Web, UX design)
-- Creative Writng and Typography
+- Creative Writing and Typography
 - Art History
 - Film Production 🎥
 
