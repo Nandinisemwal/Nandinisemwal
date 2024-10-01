@@ -1,6 +1,6 @@
 # Hello, World! 👋
 
-## Hey there! My name is Nandini Semwal. 
+##  My name is Nandini Semwal! 
 
 I am Currently enrolled as an Interactive Design Student at  [SAIT](https://www.sait.ca). I have always had a deep passion for Visual design and Web design. I am always looking forword to explore different forms of Designs. I aim to increase my knowledge of Adobe, Photography and Film Production while also learning about Web and UX/UI design.
 
