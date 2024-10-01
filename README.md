@@ -7,3 +7,10 @@
 - Graphic Design (Adobe Illustrator)
 - Photography (Photoshop)
 - Arts 
+
+## Interests:
+-  Digital Arts
+- Different forms of Design (Graphic, Web, UX design)
+- Creative Writng and Typography
+- Art History
+- Film Production
