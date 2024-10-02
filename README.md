@@ -20,4 +20,5 @@ I am Currently enrolled as an Interactive Design Student at  [SAIT](https://www.
 ## Contact:
 
 Feel free to reach out.
-- Email: [Nandini.semwal@edu.sait.ca]
+- School Email: [Nandini.semwal@edu.sait.ca]
+- Personal Email: [Nandini07semwal@icloud.com]
